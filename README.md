@@ -1,16 +1,13 @@
-## Hi there 👋
+## intro sumn idk
 
-<!--
-**GoldenLaurelssz/GoldenLaurelssz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+* ・┈ ✦ hi hello im goldenlaurel but you can call me Renn (weird indeed)
+* ・┈ ✦ confused creature / genderfluid
+* ・┈ ✦ she / Her is okay, but i prefer they / it!
+* ・┈ ✦ diagnosed with social anxiety (ignore my awkwardness plz)
+* ・┈ ✦ feel free to interact
+* ・┈ ✦ i recommend w2i, cz sometimes i missed a chat
+* ・┈ ✦ usually offtab
+* ・┈ ✦ fw lssmp / hc / uu / life series
+* ・┈ ✦ dsmp dni 😡🚫
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## i think thats all, bye lovely!! :D
