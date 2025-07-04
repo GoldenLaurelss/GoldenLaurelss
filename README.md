@@ -2,7 +2,7 @@
 
 * ・┈ ✦ hi hello im goldenlaurel but you can call me Renn (weird indeed)
 * ・┈ ✦ confused creature / genderfluid
-* ・┈ ✦ she / Her is okay, but i prefer they / it!
+* ・┈ ✦ She / Her is okay, but i prefer they / it!
 * ・┈ ✦ diagnosed with social anxiety (ignore my awkwardness plz)
 * ・┈ ✦ feel free to interact PLEASEAPLEPASEPSLEA / c+h
 * ・┈ ✦ i recommend w2i, cz sometimes i missed a chat
