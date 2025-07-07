@@ -1,6 +1,6 @@
 ## intro sumn idk
 
-* ・┈ ✦ hi hello im goldenlaurel but you can call me Mint
+* ・┈ ✦ hi hello im Mint
 * ・┈ ✦ confused creature / genderfluid
 * ・┈ ✦ She / Her is okay, but i prefer they / it!
 * ・┈ ✦ ID / ENG :P
