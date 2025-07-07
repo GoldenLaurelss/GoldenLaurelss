@@ -11,4 +11,4 @@
 * ・┈ ✦ fw lssmp / hc / uu / life series / more on my strawoages i think
 * ・┈ ✦ dsmp dni 😡🚫
 
-## i think thats all, bye lovely!! :D
+## ,.,.
