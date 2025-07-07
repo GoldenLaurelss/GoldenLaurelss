@@ -8,7 +8,7 @@
 * ・┈ ✦ feel free to interact PLEASEAPLEPASEPSLEA / c+h
 * ・┈ ✦ i recommend w2i, cz sometimes i missed a chat
 * ・┈ ✦ usually offtab
-* ・┈ ✦ fw lssmp / hc / uu / life series
+* ・┈ ✦ fw lssmp / hc / uu / life series / more on my strawoages i think
 * ・┈ ✦ dsmp dni 😡🚫
 
 ## i think thats all, bye lovely!! :D
