@@ -4,7 +4,7 @@
 * ・┈ ✦ confused creature / genderfluid
 * ・┈ ✦ She / Her is okay, but i prefer they / it!
 * ・┈ ✦ ID / ENG :P
-* ・┈ ✦ diagnosed with social anxiety (ignore my awkwardness plz)
+* ・┈ ✦ diagnosed with REALLY severe social anxiety (ignore my awkwardness plz)
 * ・┈ ✦ feel free to interact PLEASEAPLEPASEPSLEA / c+h
 * ・┈ ✦ i recommend w2i, cz sometimes i missed a chat
 * ・┈ ✦ usually offtab
