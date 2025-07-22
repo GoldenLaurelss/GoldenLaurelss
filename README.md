@@ -1,7 +1,7 @@
 ## intro sumn idk
 
 * ・┈ ✦ hi hello im Mint
-* ・┈ ✦ confused creature / genderfluid
+* ・┈ ✦ genderfluid
 * ・┈ ✦ She / Her is okay, but i prefer they / it
 * ・┈ ✦ ID / ENG :P
 * ・┈ ✦ diagnosed with REALLY severe social anxiety (ignore my awkwardness plz)
