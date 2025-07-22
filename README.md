@@ -2,7 +2,7 @@
 
 * ・┈ ✦ hi hello im Mint
 * ・┈ ✦ confused creature / genderfluid
-* ・┈ ✦ She / Her is okay, but i prefer they / it!
+* ・┈ ✦ She / Her is okay, but i prefer they / it
 * ・┈ ✦ ID / ENG :P
 * ・┈ ✦ diagnosed with REALLY severe social anxiety (ignore my awkwardness plz)
 * ・┈ ✦ feel free to interact PLEASEAPLEPASEPSLEA / c+h
