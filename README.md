@@ -15,14 +15,9 @@
 ![mwah](https://github.com/user-attachments/assets/b85e9ee8-1c89-42ba-992d-9f44a808f5e4)
 ![ul4i8l](https://github.com/user-attachments/assets/611fe3fe-0a21-45d1-ad3b-8a8747fbda58)
 
-  <span>
-    <img src="https://img.shields.io/badge/she-8B0000?style=flat&labelColor=8B0000" />
-    /
-    <img src="https://img.shields.io/badge/they-4B0082?style=flat&labelColor=4B0082" />
-    /
-    <img src="https://img.shields.io/badge/it-9370DB?style=flat&labelColor=9370DB" />
-  </span>
-</div>
+
+ <p align="center">she / they / it</p>
+
 
 <div align="center">
   <img width="600" height="600" alt="forgithubyay-removebg-preview" src="https://github.com/user-attachments/assets/edf1cd34-c1b6-4c65-9160-0eb9b63e4531" style="vertical-align:middle; margin-right:10px;" />
