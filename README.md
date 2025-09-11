@@ -16,7 +16,7 @@
 ![ul4i8l](https://github.com/user-attachments/assets/611fe3fe-0a21-45d1-ad3b-8a8747fbda58)
 
 
- <p align="center">she / they / it</p>
+ <p align="center">any / xe</p>
 
 
 <div align="center">
