@@ -18,8 +18,8 @@
 
  <p align="center">any / xe</p>
 
-[atabook]([https://example.com](https://mintszlla.atabook.org
-)
+[atabook](https://mintszlla.atabook.org)
+
 
 
 
