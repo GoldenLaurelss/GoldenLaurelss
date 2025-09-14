@@ -21,7 +21,7 @@
 [sign ata here !](https://mintszlla.atabook.org)
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/a20750fa-4db5-4925-a0f8-388dce95ab34" alt="wemmin" width="400" align="top"/>
-  <img src="https://github.com/user-attachments/assets/edf1cd34-c1b6-4c65-9160-0eb9b63e4531" alt="forgithubyay" width="600"/>
+  <img src="https://github.com/user-attachments/assets/a20750fa-4db5-4925-a0f8-388dce95ab34" alt="wemmin" width="300" align="top"/>
+  <img src="https://github.com/user-attachments/assets/edf1cd34-c1b6-4c65-9160-0eb9b63e4531" alt="forgithubyay" width="500"/>
 </p>
 
