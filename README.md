@@ -7,6 +7,8 @@
 
 𝘯𝘦𝘷𝘦𝘳 𝘢𝘯𝘥 𝘞𝘖𝘕𝘛 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵 𝘧𝘪𝘳𝘴𝘵.
 
+![](https://komarev.com/ghpvc/?username=GoldenLaurelss&color=blueviolet&label=MY+✦+SHOT&base=100&abbreviated=true)
+
 
 
 <div align="center">
