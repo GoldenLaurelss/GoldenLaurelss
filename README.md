@@ -18,4 +18,4 @@
 
 [Pronouns.cc .](https://pronouns.cc/@MintSzlla) ‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎‎‎ ‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎‎‎‎‎ ‎‎ ‎‎‎‎ ‎‎‎ ‎‎‎‎ ‎‎‎‎‎‎‎‎ ‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎ ‎ [twitter .](https://x.com/underhatred) ‎ ‎ ‎ ‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎ ‎   ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎  ‎ ‎ ‎‎ ‎  ‎ ‎  ‎ ‎‎ ‎ [roblox .](https://www.roblox.com/users/2666279700/profile)
 
- ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎[strawpage .](https://vyouss.straw.page) ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎   ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎       ‎ ‎ [atabook .](https://mintszlla.atabook.org/)
+ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎[strawpage .](https://binggo.straw.page) ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎   ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎       ‎ ‎ [atabook .](https://mintszlla.atabook.org/)
