@@ -1,7 +1,7 @@
 ## apocalyb
 
 
-<div align="center"> 𝘢𝘯𝘺 / 𝘹𝘦
+<div align="center"> 𝘢𝘯𝘺 / it
 
 𝘢𝘯𝘹𝘪𝘰𝘶𝘴 𝘤𝘳𝘦𝘢𝘵𝘶𝘳𝘦, 𝘣𝘦 𝘯𝘪𝘤𝘦 𝘶𝘯𝘭𝘦𝘴𝘴 𝘪 𝘬𝘯𝘰𝘸 𝘺𝘰𝘶 𝘢𝘯𝘥 𝘸𝘦 𝘢𝘳𝘦 𝘤𝘭𝘰𝘴𝘦 .
 
