@@ -3,6 +3,8 @@
 
 
 <div align="center"> no im not done.
+  
+and no, i dont like interacting first. if you really wanna interact, tthen go on ^^
 
   
   ![](https://komarev.com/ghpvc/?username=GoldenLaurelss&color=blueviolet&style=plastic&label=★&base=300&abbreviated=true)
