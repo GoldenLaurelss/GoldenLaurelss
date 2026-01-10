@@ -12,5 +12,5 @@ and no, i dont really like interacting first. if you really wanna interact, tthe
   
 <div align="center"> <img width="600" height="422" alt="Untitled28_20251228134251" src="https://github.com/user-attachments/assets/0d81c93e-cbe7-43db-ab91-2c40f8ff05d4" /> 
 
-[[atabook]](https://mintszlla.atabook.org/)　　 [[strawpage]](https://binggo.straw.page) 　　[[twitter]](X.com/underhatred) 　　[[prns.cc]](https://pronouns.cc/@MIINTT)
+[[atabook]](https://mintszlla.atabook.org/)　　 [[strawpage]](https://binggo.straw.page) 　　[[twitter]](X.com/underhatred) 　　[[prns.cc]](https://pronouns.cc/@MIINTT) 　　[[SpaceHey]](https://spacehey.com/s4nnityy)
 
