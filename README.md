@@ -6,7 +6,11 @@
   
 and no, i dont really like interacting first. if you really wanna interact, tthen go on ^^
 
-[vevovevo acc . . !](https://github.com/VEVODUO)
+<div align="left">
+  
+  [vevovevo acc . . !](https://github.com/VEVODUO)
+
+<div align="center">
   
   ![](https://komarev.com/ghpvc/?username=GoldenLaurelss&color=blueviolet&style=plastic&label=★&base=300&abbreviated=true)
 
