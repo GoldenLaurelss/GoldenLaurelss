@@ -2,9 +2,7 @@
 ## SIGN ATA !!!
 
 
-<div align="center"> no im not done
-  
-and no, i dont really like interacting first. if you really wanna interact, tthen go on ^^
+<div align="center"> i dont really like interacting first. if you really wanna interact, tthen go on ^^
 
 <div align="left">
   
