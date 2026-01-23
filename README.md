@@ -3,6 +3,8 @@
 
 
 <div align="center"> i kindaa dont like interacting first. if you really wanna interact, tthen go on ^^
+  
+gguys my main cc is minutetech , wemmbu , galaxyisdum , evourai , and gopgvevo i think
 
 <div align="left">
   
