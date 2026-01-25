@@ -4,7 +4,6 @@
 
 <div align="center"> i kindaa dont like interacting first. if you really wanna interact, tthen go on ^^
   
-gguys my main cc is minutetech , wemmbu , galaxyisdum , evourai , and gopgvevo i think
 
 <div align="left">
   
@@ -14,8 +13,12 @@ gguys my main cc is minutetech , wemmbu , galaxyisdum , evourai , and gopgvevo i
   
   ![](https://komarev.com/ghpvc/?username=GoldenLaurelss&color=blueviolet&style=plastic&label=★&base=300)
 
+i swear i keep changing github readme design, but trust me on this wip pls pls pls
   
-<div align="center"> <img width="600" height="422" alt="Untitled28_20251228134251" src="https://github.com/user-attachments/assets/0d81c93e-cbe7-43db-ab91-2c40f8ff05d4" /> 
+<div align="center"> 
+
+![656b9829-12b2-4b40-922e-43d50c809703](https://github.com/user-attachments/assets/b9a6bdb2-d84d-4a73-a7fb-9490ae7ca005)
+
 
 [[ata]](https://mintszlla.atabook.org/)　　 [[strawp]](https://binggo.straw.page) 　　[[twitter]](https://x.com/underhatred) 　　[[prns]](https://pronouns.cc/@MIINTT) 　　[[spacehey]](https://spacehey.com/s4nnityy)
 
