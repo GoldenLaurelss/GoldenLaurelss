@@ -13,11 +13,12 @@
   
   ![](https://komarev.com/ghpvc/?username=GoldenLaurelss&color=blueviolet&style=plastic&label=★&base=300)
 
-i swear i keep changing github readme design, but trust me on this wip pls pls pls
+look at my babies . . . [wip]
   
 <div align="center"> 
 
-![656b9829-12b2-4b40-922e-43d50c809703](https://github.com/user-attachments/assets/b9a6bdb2-d84d-4a73-a7fb-9490ae7ca005)
+![77e75824-b3cc-48b0-9f98-1ed52227fe2a](https://github.com/user-attachments/assets/8951205d-1bc8-4878-972f-d37ff4992b39)
+
 
 
 [[ata]](https://mintszlla.atabook.org/)　　 [[strawp]](https://binggo.straw.page) 　　[[twitter]](https://x.com/underhatred) 　　[[prns]](https://pronouns.cc/@MIINTT) 　　[[spacehey]](https://spacehey.com/s4nnityy)
