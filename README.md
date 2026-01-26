@@ -21,5 +21,5 @@ look at my babies . . . [wip]
 
 
 
-[[ata]](https://mintszlla.atabook.org/)　　 [[strawp]](https://binggo.straw.page) 　　[[not done matching rentry]](https://rentry.co/M0rvayNe) 　　[[prns]](https://pronouns.cc/@MIINTT) 　　[[spacehey]](https://spacehey.com/s4nnityy)
+[[ata]](https://mintszlla.atabook.org/)　　 [[strawp]](https://binggo.straw.page) 　　[[prns]](https://pronouns.cc/@MIINTT) 　　[[spacehey]](https://spacehey.com/s4nnityy)
 
