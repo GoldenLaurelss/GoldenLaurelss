@@ -20,5 +20,4 @@ look at this while im waiting for new phone. this will be changed soon trust,...
 
 ts is the most random assortment of main cc
 
-[[ata]](https://mintszlla.atabook.org/)　　 [[strawp]](https://binggo.straw.page) 　　[[prns]](https://pronouns.cc/@MIINTT) 　　[[spacehey]](https://spacehey.com/s4nnityy)
-
+[[ata]](https://mintszlla.atabook.org/)　　 [[strawp]](https://binggo.straw.page) 　　[[prns]](https://pronouns.cc/@MIINTT)
