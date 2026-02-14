@@ -2,7 +2,7 @@
 ## SIGN ATA TO GET SIGNED BACK !!!
 
 
-<div align="center"> i kindaa dont like interacting first. if you really wanna interact, tthen go on ^^
+<div align="center"> will sound kinda rude / sarcastic , be mean to me idc n idm
   
 
 <div align="left">
