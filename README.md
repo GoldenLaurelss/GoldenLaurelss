@@ -1,4 +1,4 @@
-# iloveendtrio .
+# bro im legit the nonchalant guy minutetech #whotfisbrandon .
 ## SIGN ATA TO GET SIGNED BACK !!!
 
 
