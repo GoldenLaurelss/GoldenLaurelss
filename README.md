@@ -1,4 +1,4 @@
-# bro im legit the nonchalant guy minutetech #whotfisbrandon .
+# bro im legit the nonchalant guy minutetech .
 ## SIGN ATA TO GET SIGNED BACK !!!
 
 
