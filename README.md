@@ -1,4 +1,4 @@
-# bro im legit the nonchalant guy minutetech .
+# that one oomf thats too minutetech
 ## SIGN ATA TO GET SIGNED BACK !!!
 
 
