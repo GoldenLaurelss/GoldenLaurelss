@@ -17,6 +17,6 @@ no. 1 self proclaimed monarch duo fans
 
 <img width="1000" height="750" alt="WhatsApp Image 2026-05-11 at 7 48 47 PM" src="https://github.com/user-attachments/assets/c59fb6c4-900b-4209-8912-aaa867ec7a87" />
 
-cr to ZEMZYYY FT. THE PZE MY FAMILYYY (github is under construction plz wait
+cr to ZEMZYYY FT. THE PZE MY FAMILYYY (github is under construction plz wait)
 
 [[ata]](https://mintszlla.atabook.org/)　　 [[strawp]](https://binggo.straw.page) 　　[[prns]](https://pronouns.cc/@MIINTT)
