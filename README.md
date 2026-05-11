@@ -15,9 +15,8 @@
 
 no. 1 self proclaimed monarch duo fans
 
-![53c59f0bd1f9d0cc5856ae5b4a4a2d21](https://github.com/user-attachments/assets/01cb3ca4-b3a1-4bf5-893e-43b5405c8b45)
+<img width="1000" height="750" alt="WhatsApp Image 2026-05-11 at 7 48 47 PM" src="https://github.com/user-attachments/assets/c59fb6c4-900b-4209-8912-aaa867ec7a87" />
 
-
-ts is the most random assortment of main cc
+cr to ZEMZYYY FT. THE PZE MY FAMILYYY (github is under construction plz wait
 
 [[ata]](https://mintszlla.atabook.org/)　　 [[strawp]](https://binggo.straw.page) 　　[[prns]](https://pronouns.cc/@MIINTT)
