@@ -7,7 +7,7 @@
 
 <div align="left">
   
-  [vevovevo acc . . !](https://github.com/VEVODUO)
+  [vevovevo acc . . !](https://github.com/VEVODUO) [osc github . . ](https://github.com/astro-biology)
 
 <div align="center">
   
