@@ -19,4 +19,4 @@ no. 1 self proclaimed monarch duo fans
 
 cr to ZEMZYYY FT. THE PZE MY FAMILYYY (github is under construction plz wait)
 
-[[ata]](https://mintszlla.atabook.org/)　　 [[strawp]](https://binggo.straw.page) 　　[[prns]](https://pronouns.cc/@MIINTT)
+[[ata]](https://mintszlla.atabook.org/)　　 [[strawp]](https://binggo.straw.page) 　　[[prns]](https://pronouns.cc/@MIINTT) 　　[[main rentry]](https://rentry.co/H1ndia)
