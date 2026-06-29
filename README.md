@@ -1,10 +1,6 @@
 # that one oomf thats too minutetech
 ## SIGN ATA TO GET SIGNED BACK !!!
-
-
-<div align="center"> will sound kinda rude / sarcastic , be mean to me idc n idm
   
-
 <div align="left">
   
   [vevovevo acc . . !](https://github.com/VEVODUO) [osc github . . ](https://github.com/astro-biology)
@@ -13,10 +9,11 @@
   
   ![](https://komarev.com/ghpvc/?username=GoldenLaurelss&color=blueviolet&style=plastic&label=★&base=300)
 
+so468
+
 no. 1 self proclaimed monarch duo fans
 
-<img width="1000" height="750" alt="WhatsApp Image 2026-05-11 at 7 48 47 PM" src="https://github.com/user-attachments/assets/c59fb6c4-900b-4209-8912-aaa867ec7a87" />
+<img width="735" height="490" alt="Untitled3" src="https://github.com/user-attachments/assets/2cc69222-6ac7-4a1a-aec7-79feef24d86e" />
 
-cr to ZEMZYYY FT. THE PZE MY FAMILYYY (github is under construction plz wait)
 
 [[ata]](https://monxrchduo.atabook.org/)　　 [[strawp]](https://d-d-d-d-dallright.straw.page) 　　[[prns]](https://pronouns.cc/@MIINTT) 　　[[main rentry]](https://rentry.co/H1ndia)
